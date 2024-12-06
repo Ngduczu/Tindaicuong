@@ -1,1 +1,2 @@
-Deo co gi dau doc lam gi cho tong thoi gian
+﻿Just a negative person.
+Nguyen Duc Vu
